@@ -7,7 +7,7 @@ Mariée - 3 Enfants
 ----------------------------------------
 
 ##Expérience professionnelle
-*_De 03/2002 à 03/2014_* Chef d'entreprise d'une petite TPE de 15 personnes dans le domaine de l'esthétique,
+_*De 03/2002 à 03/2014*_ Chef d'entreprise d'une petite TPE de 15 personnes dans le domaine de l'esthétique,
 J'ai créé durant une douzaine d'année des instituts spécialisés dans l'onglerie et formé une 30aine de collaboratrices et collaborateurs!
 Pour son développement, j'ai créé 3 sites internet, (1 site vitrine, 1 site pour de la formation ainsi qu'un site de E-commerce de vente de maquillage BIO ) en total autodidactie et ainsi j'ai retrouvé les sensations de mes rèves d'enfants d'où ce changement d'orientation à 35ans !
 Une envie de créer tout le temps, de chercher, de travailler en collaboration et non pas en conccurence !
@@ -27,6 +27,7 @@ Une petite année très riche en apprentissage de toutes sortes ! Mais fière de
 
 ##Formations
 *_Depuis toujours !_* Autodidacte mention très bien ;)
+
 *_EmWeb_* En cours de formation, mais j'attends beaucoup de ce cursus pour pouvoir la terminer !
 
 
