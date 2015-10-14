@@ -14,6 +14,8 @@ Une envie de créer tout le temps, de chercher, de travailler en collaboration e
 
 *_Avril 2014_* Création du site [E-cigarette-electronic.com](htt://www.e-cigarette-electronic.com)
 
+*_Avril 2014 à maintenant_* Apprentissage par tutoriel vidéo comme Openclassroom, Codaccademy, Grafikart, Pierre Giraud, Unixvers .....
+
 *_De 09/2014 à 09/2016_*  J'intègre la formation à distance de EmWeb. Relativement déçu comme beaucoup d'autres du déroulé de cette formation.
 Nous créeons une cohésion d'élèves et d'anciens élèves de cette école et ensemble nous décidons de créer un site communautaire d'entre-aide.
 
