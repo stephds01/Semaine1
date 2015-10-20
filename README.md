@@ -7,30 +7,30 @@ Mariée - 3 Enfants
 ----------------------------------------
 
 ##Expérience professionnelle
-*__De 03/2002 à 03/2014__ Chef d'entreprise d'une petite TPE de 15 personnes dans le domaine de l'esthétique,
+* __De 03/2002 à 03/2014__ Chef d'entreprise d'une petite TPE de 15 personnes dans le domaine de l'esthétique,
 J'ai créé durant une douzaine d'année des instituts spécialisés dans l'onglerie et formé une 30aine de collaboratrices et collaborateurs!
 Pour son développement, j'ai créé 3 sites internet, (1 site vitrine, 1 site pour de la formation ainsi qu'un site de E-commerce de vente de maquillage BIO ) en total autodidactie et ainsi j'ai retrouvé les sensations de mes rèves d'enfants d'où ce changement d'orientation à 35ans !
 Une envie de créer tout le temps, de chercher, de travailler en collaboration et non pas en conccurence !
 
-*__Avril 2014__ Création du site [E-cigarette-electronic.com](htt://www.e-cigarette-electronic.com)
+* __Avril 2014__ Création du site [E-cigarette-electronic.com](htt://www.e-cigarette-electronic.com)
 
-*__Avril 2014 à maintenant__ Apprentissage par tutoriels vidéo comme Openclassroom, Codaccademy, Grafikart, Pierre Giraud, Unixvers .....
+* __Avril 2014 à maintenant__ Apprentissage par tutoriels vidéo comme Openclassroom, Codaccademy, Grafikart, Pierre Giraud, Unixvers .....
 
-*__De 09/2014 à 09/2016__  J'intègre la formation à distance de EmWeb. Relativement déçu comme beaucoup d'autres du déroulé de cette formation.
+* __De 09/2014 à 09/2016__  J'intègre la formation à distance de EmWeb. Relativement déçu comme beaucoup d'autres du déroulé de cette formation.
 Nous créeons une cohésion d'élèves et d'anciens élèves de cette école et ensemble nous décidons de créer un site communautaire d'entre-aide.
 
-*__En 01/2015__ Ce fut chose faites, le projet "Road-web.fr" naissait, avec 30 personnes, 4 référents métiers et 3 chefs de projets dont je fais parti.
+* __En 01/2015__ Ce fut chose faites, le projet "Road-web.fr" naissait, avec 30 personnes, 4 référents métiers et 3 chefs de projets dont je fais parti.
 Une petite année très riche en apprentissage de toutes sortes ! Mais fière de toutes notre petite organisation qui à réussit à lancer la version 1 du site [Road-web.fr](http://www.road-web.fr), le 15 septembre 2015.
 
-*__En 09/2015__ J'envoie ma candidature à Simplon.co Lyon, en espérant pouvoir rejoindre cette équipe dynamique qu'est simplon.co que je suis depuis plus d'un an 1/2 .
-*__En 10/2015__ Je suis préselectionée dans le wagon des 60 dernières candidatures, puis malheureusement je ne suis retenue dans la dernière ligne droite des 24 personnes qui sont prises pour l'aventure !
-*__En 10/2015__ Du coup me voilà chez Simplo.co en FAOD! ;)
+* __En 09/2015__ J'envoie ma candidature à Simplon.co Lyon, en espérant pouvoir rejoindre cette équipe dynamique qu'est simplon.co que je suis depuis plus d'un an 1/2 .
+* __En 10/2015__ Je suis préselectionée dans le wagon des 60 dernières candidatures, puis malheureusement je ne suis retenue dans la dernière ligne droite des 24 personnes qui sont prises pour l'aventure !
+* __En 10/2015__ Du coup me voilà chez Simplo.co en FAOD! ;)
 
 
 ##Formations
-*__Depuis toujours !__ Autodidacte mention très bien ;)
+* __Depuis toujours !__ Autodidacte mention très bien ;)
 
-*__EmWeb__ En cours de formation, mais j'attends beaucoup de ce cursus pour pouvoir la terminer !
+* __EmWeb__ En cours de formation, mais j'attends beaucoup de ce cursus pour pouvoir la terminer !
 
 
 ##Pourquoi j'ai voulu rejoindre Simplon.co
